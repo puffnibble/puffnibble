@@ -9,3 +9,4 @@ I'M CRYING THIS IS FRYING ME... Like I was just complaining to my partner and so
 
 Oh and side note you didn't know the situation.. so I'll say it here ;-;..
 To answer yeah it wouldn't be evesdropping if they were near but they were pretty far away from me (I had to zoom out thrice to see them) And side note me and them are sort of friend(s) now cause we had a chat... unlike you who's being Anonymous. It's kinda immature of you bud, but hey it isn't too late to step up and chat about this with me ^_^
+Update: They apolgized but they were being really really immature about this, I'm keeping this here for memory so people can probably think before they speak...
